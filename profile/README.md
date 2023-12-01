@@ -14,7 +14,6 @@ Jangan lupa untuk mengikuti kami di media sosial kami:
 - Instagram: [@Fiqih](https://www.instagram.com/piq.png/)
 - Instagram: [@Irna](https://www.instagram.com/aulia.irna/)
 - Instagram: [@Zaky](https://www.instagram.com/faisalzakyahmad/)
-- Instagram: [@Faiz](https://www.instagram.com/rama_1027/)
 - Instagram: [@Aliya](https://www.instagram.com/aliyea.1/)
 
 Salam Tim Net Think.
